@@ -1,1 +1,1 @@
-me llamo mariana
+tengo 22 años
